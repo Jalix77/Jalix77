@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jalix77
 - 👀 I’m interested in computer and AI
-- 🌱 I’m currently learning Quickbooks
+- 🌱 I’m currently learning CCMA
 - 💞️ I’m looking to collaborate on many projects
 - 📫 How to reach me jajepierre@gmail.com
 - 😄 Pronouns: ...He
